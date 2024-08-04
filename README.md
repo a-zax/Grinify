@@ -1,4 +1,4 @@
-#### ![WhatsApp Image 2024-08-01 at 21 09 34_95293d17](https://github.com/user-attachments/assets/336bd033-b536-463b-bd4e-e1d3524477e1)
+![WhatsApp Image 2024-08-01 at 21 09 34_95293d17](https://github.com/user-attachments/assets/336bd033-b536-463b-bd4e-e1d3524477e1)
 ![WhatsApp Image 2024-08-01 at 21 09 34_ffeb68f3](https://github.com/user-attachments/assets/913cdc32-0057-41dd-b3e9-6b62c53eb415)
 ![WhatsApp Image 2024-08-01 at 21 09 35_9f17d96e](https://github.com/user-attachments/assets/8ec792cc-dba3-40a5-99e8-acbf08a2e887)
 ![WhatsApp Image 2024-08-01 at 21 09 35_3b250f8f](https://github.com/user-attachments/assets/abf642b5-691a-4cf9-8791-d75b09ba17f1)
